@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **peddigoutham93172@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://docs.google.com/document/d/1ORhWNkyvxYCuP1HW61_akWV2vowhZWi37nEkIPl51BM/edit?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://docs.google.com/document/d/13yxBg2vj6Oeyydqcmym2vqYlp4ABI3j5ShY32QuAc-Q/edit?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
